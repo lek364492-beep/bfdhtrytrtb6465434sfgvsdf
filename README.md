@@ -1,2 +1,0 @@
-# กไๆเพำ้ถภjytkjyujytjtyjytukjyhfgdcvv
-zzzzz
